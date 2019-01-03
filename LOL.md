@@ -1,1 +1,1 @@
-#kupka z dupki
+hahs naprawdę?
